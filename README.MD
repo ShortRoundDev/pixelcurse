@@ -1,3 +1,5 @@
+![Haruko](http://i.imgur.com/mBOyMWP.png)
+
 #Pixel curse#
 
 ##Dependencies##
