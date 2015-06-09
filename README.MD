@@ -1,4 +1,4 @@
-![Haruko](http://i.imgur.com/mBOyMWP.png)
+![Haruko](http://i.imgur.com/SsH7wND.png)
 
 #Pixel curse#
 
